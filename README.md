@@ -6,13 +6,16 @@ A Little About Me:
 🧠 Tech Enthusiast: Passionate about machine learning, NLP, and crafting secure digital landscapes.
 🛠️ Builder: Love diving into projects that blend data, AI, and real-world impact.
 🌱 Lifelong Learner: Constantly exploring the latest in AI, cybersecurity, and software development.
+
 What I'm Up To:
 🔐 Tackling cybersecurity challenges while sharpening my coding and problem-solving skills.
 🧑‍🏫 Mentoring as an honors peer mentor, empowering others to reach their academic goals.
 🌍 Dreaming up ways to merge tech and service for a better world.
+
 Let’s Connect!
 💬 Ask me about AI, Cybersecurity, or that cool project you're working on—I'd love to help!
-📫 Find me on LinkedIn or email me at [your-email@example.com].
+📫 Find me on LinkedIn or email me at [https://www.linkedin.com/in/tamia-thomas-9681482b7/].
+
 Fun Facts:
 😄 Pronouns: She/Her
 🌟 Fun Fact: I’m a big believer in the power of service—ask me about my experiences with alternative spring breaks!
