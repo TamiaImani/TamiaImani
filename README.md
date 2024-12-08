@@ -20,3 +20,7 @@ Fun Facts:
 😄 Pronouns: She/Her
 🌟 Fun Fact: I’m a big believer in the power of service—ask me about my experiences with alternative spring breaks!
 🎵 When I'm not coding, you can find me jamming to some tunes or baking some sweet treats.
+
+
+
+
